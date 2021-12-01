@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @grim-toaster
+- 👀 I’m interested in coding/making avitars
+- 🌱 I’m currently learning how to program
+- 💞️ I’m looking to collaborate on vrmodles
+- 📫 How to reach me metal-protogen#8085 on discord
